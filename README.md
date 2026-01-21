@@ -1,1 +1,1 @@
-# ___'s UX Journal
+# Edgar Castellanos' UX Journal
